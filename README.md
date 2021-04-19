@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Eddo
 - 👀 I’m interested in Nintendo Games, anime, Xbox stuff, Korea and USA
-- 🌱 I’m currently learning JavaScript
-- 💞️ I’m looking to collaborate on coding
+- 🌱 I’m currently learning how to play Monster Hunter Rise Online
+- 💞️ I’m looking to find new peeps
 - 📫 How to reach me: DISCORD :D 
 
 <!---
