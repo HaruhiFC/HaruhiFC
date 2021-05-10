@@ -4,7 +4,7 @@ https://images.app.goo.gl/gJE3X3BpuA3eTNWK7
 - 👀 I’m interested in Nintendo Games, anime, Xbox stuff, Korea and USA
 - 🌱 I’m currently learning how to play Monster Hunter Rise Online
 - 💞️ I’m looking to find new peeps
-- 📫 How to reach me: DISCORD :D 
+- 📫 How to reach me: Right here, i guess!
 - <!---
 'Tis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
