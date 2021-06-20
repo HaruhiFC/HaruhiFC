@@ -2,7 +2,7 @@ https://images.app.goo.gl/gJE3X3BpuA3eTNWK7
 
 -👋 Hi, I’m Eddo
 - 👀 I’m interested in Nintendo Games, anime, Xbox stuff, Korea and USA
-- 🌱 I’m currently learning how to play Monster Hunter Rise Online
+- 🌱 I’m currently learning how to code in Game Builder Garage
 - 💞️ I’m looking to find new peeps
 - 📫 How to reach me: Right here, i guess!
 - <!---
